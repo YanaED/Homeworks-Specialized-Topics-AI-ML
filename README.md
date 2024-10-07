@@ -1,1 +1,0 @@
-# Homeworks-Specialized-Topics-AI-ML
